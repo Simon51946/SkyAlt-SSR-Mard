@@ -1,2 +1,2 @@
-# SkyAlt-SSR-Mard
+# Simon sprunki
 Follow me and add me all!! 
