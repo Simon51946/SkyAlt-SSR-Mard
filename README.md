@@ -1,2 +1,2 @@
 # Simon sprunki
-Follow me and add me all!! 
+Eats a chocolate
